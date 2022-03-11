@@ -1,3 +1,1 @@
-### Hi there 👋
-
-Love Python, Linux and Free Software ❤️❤️❤️
+### Death to Russian invaders!
