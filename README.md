@@ -1,2 +1,2 @@
 ### Death to Russian invaders!
-Please, donate! https://comebackalive.in.ua/
+Please, donate! https://savelife.in.ua/en/
