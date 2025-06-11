@@ -1,2 +1,2 @@
-### Death to Russian invaders!
+### Help Ukraine!
 Please, donate! https://savelife.in.ua/en/
